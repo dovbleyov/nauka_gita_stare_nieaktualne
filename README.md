@@ -1,3 +1,4 @@
 Dzien dobry
 Milego dnia i smacznej kawusi
-Pozdrawiam
+Pozdrawiam :)
+Weronika Ciesielska
